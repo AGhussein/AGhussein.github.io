@@ -1,2 +1,4 @@
 # AGhussein.github.io
-love coding and i am also here to learn.
+Hey Dear! 
+I Love coding, and i am also a fitness Enthusiast
+would you love to hit the gym someday with me?
